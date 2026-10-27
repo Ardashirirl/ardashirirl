@@ -1,21 +1,20 @@
-## ✩ "Lord Drinker of the Moon."
+## ✩ "𝓒𝓸𝓶𝓮 𝔀𝓲𝓽𝓱 𝓶𝓮, 𝓔𝓷𝓭𝓶𝓲𝓷."
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=a6e3f6"> 
+    <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=687CD2"> 
 </p>
  
 <p align="center">
- <image src="https://i.imgur.com/aLk1fyG.jpeg<img width="2048)" />
-
+ <image src="https://github.com/user-attachments/assets/de301632-7e0f-4e73-9425-fdad0a73dd40">
 </p>
 
-> *"I am not him."*
-
+> *"This is how you'll trust me."*
+     
 <p align="center">
 ⋆｡°✩
 </p>
 
-## ✩ Quick BYI Overview 
+## ✩ 𝓠𝓾𝓲𝓬𝓴 𝓞𝓿𝓮𝓻𝓿𝓲𝓮𝔀
 * **No Major DNI**
 * **Minors IWC/IWEC as I'm 18+**
 * *W2I usually unless stated otherwise*
@@ -28,50 +27,11 @@
 * **I Hide Freely** it's usually 15min to 24hrs.
 
 <p align="center">
-⋆｡°✩
-</p>
+ <img src="https://github.com/user-attachments/assets/f56c1a25-e1e5-498a-8b71-a9f8e476f2dd" />
 
-<p align="center">
- <image arc=“https://i.imgur.com/9FXLXxT.jpeg<img width="1280" height="639" alt="image" src="https://github.com/user-attachments/assets/d2c5dac8-6d23-417f-a2b1-c7843d10ee30" />
+ > *"It shall confound you, then you shall return to me."*
 
-
-
-     
-## ✩ **Character LIST, ect.**
-* I heavily Kin Nico di Angelo, Dan Heng and Ardashir
-* I also kin Zhongli, Dan Feng, and Liu Xiao
-* **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
-* **Ships that I’m okay to interact with:** This doesn’t mean if I’m sitting with someone as these two characters that it implies a ship interaction. Pls get over yourself.
-<p align=center>
-    
-    I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.
-
-* ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang (Link Click), JaeXiao (Link Click), Veinfei (Link Click), VeinXiao (Link Click), other ships, whisper if unsure (directed at friends and strangers).
-
-<p align="center">
-⋆｡°✩
-</p>
-
-<p align="center">
- <image src="https://i.imgur.com/SgQreXc.jpeg<img width="1536" height="764" alt="image" src="https://github.com/user-attachments/assets/729874e3-b78b-4d7f-8932-eaf0859d730c" />
-     
-## ✩ Media Interests
-* **ARKNIGHTS and Endfield**
-* ORV
-* *Link Click*
-* Granblue Fantasy
-* Genshin
-* HSR
-* MDZS and TGCF
-
-<p align="center">
-⋆｡°✩
-</p>
-
-<p align="center">
- <image src="https://i.imgur.com/AoxUbp1.jpeg<img width="1883" height="900" alt="image" src="https://github.com/user-attachments/assets/f835265a-0ade-4b1f-89a9-a81067603fbc" />
-
-## ✩ **Character LIST, ect.**
+## ✩ **𝓒𝓱𝓪𝓻𝓪𝓬𝓽𝓮𝓻 𝓵𝓲𝓼𝓽, 𝓮𝓬𝓽.**
 * I heavily Kin Nico di Angelo, Dan Heng, Ardashir, and Liu Xiao.
 <p align=center>
     
@@ -80,19 +40,45 @@
 * I also kin Zhongli and Dan Feng.
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
 * **Ships that I’m okay to interact with:** This doesn’t mean if I’m sitting with someone as these two characters that it implies a ship interaction.
-
-<p align=“center”>
+<p align=center>
     
     I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.
-    
-* ArdaminA (Endfield), Chili (Genshin) (Friends only), Haikaveh (Genshin) (Strictly Friends only), Caeheng (HSR), Renfeng (HSR) (Friends only), ShiGuang/Chengguang (Link Click), JaeXiao (Link Click), I support most Link Click ships btw, don’t be hesitate to ask or sit with me as such, other ships, whisper if unsure (directed at friends and strangers).
+
+* ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang/Chengguang (Link Click), JaeXiao (Link Click), I’m okay with most Link Click ships, other ships, whisper if unsure (directed at friends and strangers).
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/6547ea45-dbaa-4a2f-9f2d-5d9756b0b8b8" />
-
+⋆｡°✩
 </p>
-     
-## ✩ Display Status in game
+
+<p align="center">
+ <image src="https://github.com/user-attachments/assets/647cd482-0729-449a-ace3-ec84e62311a6" />
+
+
+> *“I remain faithful, that all dying Universes rely upon your arbitration for survival.”*
+
+<p align="center">
+⋆｡°✩
+</p>
+
+## ✩ 𝓜𝓮𝓭𝓲𝓪 𝓲𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
+* **ARKNIGHTS and Endfield**
+* ORV
+* *Link Click*
+* Granblue Fantasy
+* Genshin
+* HSR (Warning: Stopped after M. Blade Released)
+* MDZS and TGCF
+
+<p align="center">
+ <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
+
+> *"Deeply I grieve, as I witness how you wallow in misunderstandings and wither away.”*
+
+<p align="center">
+⋆｡°✩
+</p>
+
+## ✩ 𝓓𝓲𝓼𝓹𝓵𝓪𝔂 𝓼𝓽𝓪𝓽𝓾𝓼’𝓼 𝓸𝓷 𝓟𝓸𝓷𝔂 𝓣𝓸𝔀𝓷
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
 </p>
@@ -103,13 +89,20 @@
   <img src="https://img.shields.io/badge/DNI/AFK-ㄨ-844454?style=flat-square" />
 </p>
 
-**Cosplays May Show What Mood I'm in** if you're unsure.
-
+**𝒞𝑜𝓈𝓅𝓁𝒶𝓎𝓈 𝑀𝒶𝓎 𝒮𝒽𝑜𝓌 𝒲𝒽𝒶𝓉 𝑀𝑜𝑜𝒹 𝐼'𝓂 𝒾𝓃** if you're unsure.
 * **Childe:** Actively online and in a joking mood. *I use this cosplay a lot when I’m poking fun.*
 * **Vein:** Off-Tab mostly or lurking.
 * **Ardashir:** Neutral mood. Most likely on and off-tab. Occasional messages here and there.
+* **Liu Xiao:** Quiet/Semi-talkative, On and off-tab (Occasional Replies)
 * **Zhongli:** Off-tab
-* **Liu Xiao:** On and Off-Tab
 * **Nico di Angelo:** AFK, NV, and or Off-Tab.
 * Any “Low Quiality” / Budget Cosplays. I’m off-tab (occasional replies may happen)
 * Any other cosplay, I’m more than likely off-tab.
+<p align="center">
+ <image src="https://github.com/user-attachments/assets/ac732301-6166-4a6e-8d6b-96cba54c0dd1">
+
+> *“The final Lord I served."*
+
+<p align="center">
+⋆｡°✩
+</p>
